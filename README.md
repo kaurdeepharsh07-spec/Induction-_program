@@ -64,3 +64,44 @@ In the concluding session, our seniors introduced us to **GitHub**. They explain
 - Importance of version control for coders
 
 🎶 The day ended with a delightful moment, where some seniors sang songs and created a cheerful, welcoming environment.
+
+# Day 3 – 2nd August 2025
+
+## 🧠 Expert Lecture by Dr. Jaswinder Singh (Incharge, IAPT)
+
+The third day of the Induction Program began with an insightful session by **Dr. Jaswinder Singh**, Incharge of IAPT (Indian Association of Physics Teachers). He is known for his contributions to science and mathematics education, and has received the **National Award** and **Pride of Asia** recognition. He has also spoken on radio platforms to promote scientific thinking among youth.
+
+### Highlights of His Session:
+- Runs a **Science & Math Lab** where practical learning is encouraged — even built a **small car** and demonstrated it in villages.
+- Taught us the **distribution of bones in the human body** in just a few minutes:
+  - Hands: 27 bones in each
+  - Arms: 10 bones each
+  - Legs: 10 bones each
+  - Feet: 26 bones each
+  - Head: 28 bones
+  - Face: 52 bones (combined)
+
+- Emphasized the importance of:
+  - **Learning new things regularly**
+  - Following the **"Generate – Operate – Destroy"** cycle of growth
+  - Practicing **meditation** to balance internal energy
+  - Starting every task with **Mool Mantra** (spiritual grounding)
+  - Understanding sound waves and **internal vibrations** as reflections of energy
+
+---
+
+## 🌍 Expert Lecture by Dr. Priya Darshani – Universal Human Values
+
+The second expert session of the day was delivered by **Dr. Priya Darshani Madam** on the theme of **Universal Human Values**.
+
+### Key Learnings:
+- She discussed the **purpose of life** beyond material success.
+- Many believe that goals are about money, jobs, and placements — but true goals are:
+  - **Happiness**
+  - **Prosperity**
+- Explained that **sub-goals** like career, income, and education should align with larger values.
+- Urged students to live mindfully, value learning, and take life decisions seriously.
+
+---
+
+This day focused on both **scientific curiosity** and **emotional intelligence**, encouraging students to think broadly and deeply about life, purpose, and learning.
