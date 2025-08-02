@@ -20,3 +20,5 @@ They shared advice on hard work, family values, prayer, and career choices.
 
 ### Department Visit
 Faculty members explained labs, placements, and examination systems.
+ ### At The End 
+ Overall, the first day of the Induction Program was a warm and insightful beginning to our journey at GNDEC, helping us feel more connected and informed about our academic life ahead.
