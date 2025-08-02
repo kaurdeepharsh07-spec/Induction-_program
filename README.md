@@ -1,6 +1,7 @@
 # Induction-_program
 
 ## Day 1 – 31st July
+![Gurdwara Sahib Visit ] (IMG_20250802_173223.jpg)
 
 ### Gurdwara Sahib Visit
 The day began with a visit to Gurdwara Sahib where Kirtan and Ardaas took place...
