@@ -12,15 +12,18 @@ Mr. Harsimran Singh introduced the college and its facilities...
 ### Motivational Talks
 Dr. Harpreet Kaur Mam gave us a very inspiring speech about success and life goals. She told us that with patience, perseverance, and resistance, we can achieve anything we want. She said challenges are part of the journey, and we should never give up. Her words encouraged us to stay strong and keep working hard. It was a truly powerful and positive message.
 
- ###Principal Sir
+ Principal Sir
  Sehajpal our respected Principal, gave a motivating speech to all the students. He encouraged us to work hard with honesty and dedication. He reminded us that discipline, focus, and self-belief are the keys to growth. His words gave us a fresh sense of purpose and regeneration, inspiring us to begin this new journey with full energy and commitment.
 
 
 ### Chief Guest Addresses
-- Mr. Rakesh Kumar (Alumni 1991, ADC Ludhiana)
-- Mr. Ravinder Garg (Chief Engineer, Municipal Corporation)
 
-They shared advice on hard work, family values, prayer, and career choices.
+The event was further enriched by the presence of two esteemed chief guests. 
+-Mr. Rakesh Kumar
+an alumnini from the 1991 batch and currently serving as ADC, Ludhiana, shared his journey and encouraged us to stay focused.
+-Mr. Ravinder Garg
+Chief Engineer in the Municipal Corporation, delivered an inspiring message about the importance of hard work, honesty, staying connected with parents, and making wise career choices always start the work with prayer
+
 
 ### Department Visit
 Faculty members explained labs, placements, and examination systems.
