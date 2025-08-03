@@ -10,7 +10,11 @@ The day began with a visit to Gurdwara Sahib where Kirtan and Ardaas took place.
 Mr. Harsimran Singh introduced the college and its facilities...
 
 ### Motivational Talks
-Dr. Harpreet Kaur emphasized persistence, Principal Sehajpal Singh explained the vision...
+Dr. Harpreet Kaur Mam gave us a very inspiring speech about success and life goals. She told us that with patience, perseverance, and resistance, we can achieve anything we want. She said challenges are part of the journey, and we should never give up. Her words encouraged us to stay strong and keep working hard. It was a truly powerful and positive message.
+
+ ###Principal Sir
+ Sehajpal our respected Principal, gave a motivating speech to all the students. He encouraged us to work hard with honesty and dedication. He reminded us that discipline, focus, and self-belief are the keys to growth. His words gave us a fresh sense of purpose and regeneration, inspiring us to begin this new journey with full energy and commitment.
+
 
 ### Chief Guest Addresses
 - Mr. Rakesh Kumar (Alumni 1991, ADC Ludhiana)
