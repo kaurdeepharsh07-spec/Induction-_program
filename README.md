@@ -19,7 +19,7 @@ Dr. Harpreet Kaur Mam gave us a very inspiring speech about success and life goa
 ### Chief Guest Addresses
 
 The event was further enriched by the presence of two esteemed chief guests. 
--<br>Mr. Rakesh Kumar
+-<br>Mr. Rakesh Kumar<br>
 an alumnini from the 1991 batch and currently serving as ADC, Ludhiana, shared his journey and encouraged us to stay focused.
 -Mr. Ravinder Garg
 Chief Engineer in the Municipal Corporation, delivered an inspiring message about the importance of hard work, honesty, staying connected with parents, and making wise career choices always start the work with prayer
