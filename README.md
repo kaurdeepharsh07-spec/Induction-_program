@@ -112,3 +112,84 @@ The second expert session of the day was delivered by **Dr. Priya Darshani Madam
 ---
 
 This day focused on both **scientific curiosity** and **emotional intelligence**, encouraging students to think broadly and deeply about life, purpose, and learning.
+## 📅 **Day 4: Induction Program Report**
+
+**🕤 Date & Time:** 9:30 AM – 4:00 PM  
+**📍 Location:** GNDEC, Ludhiana
+
+---
+
+### 🔹 **Session 1: Peer-to-Peer Programming Lecture**  
+🕤 **Time:** 9:30 AM – 10:30 AM  
+👥 **By:** Senior Students  
+💻 **Topic:** Introduction to C++ Programming  
+- Seniors guided us about the **basics of C++**.
+- We understood the concepts clearly.
+- It was a helpful and interactive session.
+
+---
+
+### 🔹 **Session 2: BEEE Lecture by Prof. Balwinder Singh**  
+🕥 **Time:** 10:30 AM – 11:30 AM  
+👨‍🏫 **By:** Prof. Balwinder Singh  
+📘 **Subject:** BEEE (Basic Electrical and Electronics Engineering)  
+- Gave a detailed **self-introduction**.
+- Explained the **entire syllabus** and chapters to be covered.
+- Asked **each student to introduce themselves**.
+
+---
+
+### ☕ **Break Time**  
+🕦 **Time:** 11:30 AM – 12:30 PM  
+🍽️ Had lunch and refreshed for the next session.
+
+---
+
+### 🔹 **Session 3: Expert Lecture on Universal Human Values**  
+🕧 **Time:** 12:30 PM – 2:30 PM  
+👩‍🏫 **By:** Dr. Priya Darshani (Madam)  
+🧠 **Topic:** Understanding Life and Staying Happy  
+- We learned to **stay happy** even during obstacles.
+- Discussed key areas of life:  
+  - **Physical Facilities**  
+  - **Right Understanding**  
+  - **Relationships**
+- Concluded that most of our time is spent in **physical facilities**.
+- The session gave us deep insights into **what life really is**.
+
+---
+
+### 🔹 **Session 4: CAUSMIC Club Introduction**  
+🕒 **Time:** 2:30 PM – 3:00 PM  
+🌟 **By:** Senior Students  
+🎯 **What is CAUSMIC?**  
+- **CAUSMIC** stands for *"Cause-Driven Students Motivated for Innovation and Change"*.  
+- The word **causmic** comes from **cause**, meaning *the reason behind doing something meaningful*.  
+
+🎤 **What does CAUSMIC Club do?**  
+- Organizes college-level cultural, motivational, and social events.  
+- Handles **anchoring**, **event management**, and **student engagement**.  
+- Encourages leadership, creativity, and teamwork among students.  
+- Helps students find purpose and build confidence through activities.  
+
+---
+
+### 🔹 **Session 5: Computer Hardware Session**  
+🖥️ **By:** Ayush Patel & Team  
+- Gave information about:
+  - Choosing the best **computers/laptops** on a budget.
+  - Difference between **desktops and laptops**.
+  - Suggested specs for **coding and college use**.
+
+---
+
+### 🎶 **Closing: Entertainment Session**  
+- Seniors sang songs and performed.
+- It was an **entertaining and joyful** end to the day.
+- Everyone enjoyed the moment with smiles and laughter.
+
+---
+
+### ✅ **Summary**  
+✨ Today was a **great**, **peaceful**, and **amazing** day full of learning, fun, and bonding.  
+🙏 Thank you for this beautiful experience!
