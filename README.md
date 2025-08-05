@@ -193,3 +193,53 @@ This day focused on both **scientific curiosity** and **emotional intelligence**
 ### ✅ **Summary**  
 ✨ Today was a **great**, **peaceful**, and **amazing** day full of learning, fun, and bonding.  
 🙏 Thank you for this beautiful experience!
+# 🏫 Day 5 – College Diary
+
+**📅 Date:** 5th August 2025  
+**📍 Venue:** Guru Nanak Dev Engineering College, Ludhiana
+
+---
+
+## ⏰ 9:30 AM – 10:30 AM | Chemistry Lecture
+
+The day started with our Chemistry class. The professor introduced herself and gave us an overview of the subject. She clearly explained what Chemistry is and what topics we will be covering throughout the semester.
+
+She also asked some basic but important questions to test our understanding:
+- What are elements?
+- What are compounds?
+- What are molecules?
+- What is Chemistry?
+
+She answered each question nicely and created a friendly learning environment.
+
+---
+
+## ⏰ 10:30 AM – 11:30 AM | English Lecture
+
+In the second hour, we had English. The professor gave her introduction and then asked every student to introduce themselves one by one. She guided us with key points to include in our introductions:
+- Name
+- Hometown
+- School/College last attended
+- Strengths
+- Weaknesses
+- Achievements
+- Accomplishments
+
+It was a nice and interactive session that helped us build confidence in speaking.
+
+---
+
+## ⏰ 11:30 AM – 12:30 PM | Mathematics Lecture
+
+Our last lecture of the day was Mathematics. The professor explained everything very well and also shared a motivational message. She encouraged us to:
+- Study with focus and sincerity  
+- Follow the college rules  
+- Respect the college environment  
+
+She also told us about the beautiful culture of our college. She said that there is **no ego among students**, and everyone here is **kind-hearted and supportive**. The overall atmosphere of the college is positive and welcoming.
+
+---
+
+## 🏠 End of Day
+
+After our lectures, we headed home feeling positive, motivated, and excited for what’s coming next. It was a productive and meaningful day at college!
