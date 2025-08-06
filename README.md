@@ -243,3 +243,74 @@ She also told us about the beautiful culture of our college. She said that there
 ## 🏠 End of Day
 
 After our lectures, we headed home feeling positive, motivated, and excited for what’s coming next. It was a productive and meaningful day at college!
+
+# 🗓️ Day 5 – Induction Program Report  
+**📅 Date:** 6th August 2025  
+**🏫 Institute:** Guru Nanak Dev Engineering College (GNDEC), Ludhiana
+
+---
+
+## 🌟 Morning Session
+
+- The day started with **ID card formation** from **9:30 AM to 10:30 AM**.
+- Afterwards, we had a **break from 10:30 AM to 11:30 AM**.
+  - During this time, we explored the college campus and visited the **library**.
+
+---
+
+## 🎤 Auditorium Session
+
+At **12:30 PM**, we assembled in the **auditorium** for the main event of the day.
+
+### 👤 Guest Speaker: *S. Gurcharan Singh*
+- **Trustee of Nankana Sahib**, former GNDEC student, and member of SDPC.
+- Delivered a **motivational and spiritual speech** emphasizing:
+  - The importance of **Guru Nanak Dev Ji’s teachings**, especially *“Kirat Karo”* (Work hard and honestly).
+  - The story of **Guru Nanak Dev Ji’s four Udasis** (spiritual journeys).
+  - Moral and ethical responsibilities of students.
+
+### 🏫 Insights about GNDEC:
+- GNDEC is a **value-driven, corruption-free (Vaapar-free)** institution.
+- Operated by the **Shiromani Gurdwara Parbandhak Committee (SGPC)**.
+- Special **rural quota** and **Sikh quota** provisions.
+  - Sikh students are expected to **maintain Sikh values** (like keeping uncut hair).
+  - Strong emphasis on **discipline and moral conduct**.
+- Encouraged students to:
+  - **Study sincerely**, respect teachers, and maintain punctuality.
+  - **Go abroad only for meaningful career growth**, not for unskilled labor.
+  - Always remember that while **God created the world**, **engineers shape and run it**.
+
+---
+
+## 🧠 Afternoon Session
+
+### 🎙️ Speaker: *Dr. Lakhveer Singh*  
+**Designation:** In-Charge, **CML (Centre for Multifaceted Learning)**
+
+- Welcomed and congratulated all new students.
+- Introduced **CML** as a student support system for:
+  - Preparing for **interviews and workshops**.
+  - Guidance for **internships**, **certifications**, and **skill development**.
+- Emphasized using platforms like **NPTEL**, participating in MOOCs, and obtaining valid certificates.
+
+---
+
+## 🎉 Interactive Segment
+
+### 🗣️ Speaker: *Mr. Arvind Dhingra*  
+**Designation:** Director, ASTP and In-Charge, TAC
+
+- Conducted a **highly interactive and engaging session**.
+- Asked students to participate in fun activities (like clapping exercises).
+- Successfully drew everyone’s attention and made the session memorable and lively.
+
+---
+
+## ✅ Conclusion
+
+Today’s program was **deeply motivational and well-organized**. All speakers delivered valuable life lessons, highlighting:
+- The **importance of values, education, discipline, and hard work**.
+- GNDEC’s **legacy and moral foundation**.
+- Our role as **engineers in building a better world**.
+
+> It truly felt like we have become a part of the GNDEC family. The experience was inspiring and left a lasting impression on us.
