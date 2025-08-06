@@ -244,7 +244,7 @@ She also told us about the beautiful culture of our college. She said that there
 
 After our lectures, we headed home feeling positive, motivated, and excited for what’s coming next. It was a productive and meaningful day at college!
 
-# 🗓️ Day 5 – Induction Program Report  
+# 🗓️ Day 6 – Induction Program Report  
 **📅 Date:** 6th August 2025  
 **🏫 Institute:** Guru Nanak Dev Engineering College (GNDEC), Ludhiana
 
