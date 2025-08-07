@@ -319,7 +319,7 @@ Today’s program was **deeply motivational and well-organized**. All speakers d
 
 > It truly felt like we have become a part of the GNDEC family. The experience was inspiring and left a lasting impression on us.
 
-# Day 6 - Induction Program Report  
+# Day 7 - Induction Program Report  
 **Date:** 7 August 2025  
 **College:** Guru Nanak Dev Engineering College (GNDEC), Ludhiana  
 
