@@ -1,7 +1,6 @@
--#Report For Induction program 
--**Name**= **Harshdeep Kaur**
--**Registration Number ** 25101322**
--**Branch** = **Computer science C**
+**Name:** Harshdeep Kaur  
+**Registration Number:** 25101322  
+**Branch:** Computer Science C
 
 # Induction-_program
 
