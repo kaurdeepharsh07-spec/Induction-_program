@@ -314,3 +314,119 @@ Today’s program was **deeply motivational and well-organized**. All speakers d
 - Our role as **engineers in building a better world**.
 
 > It truly felt like we have become a part of the GNDEC family. The experience was inspiring and left a lasting impression on us.
+
+# Day 6 - Induction Program Report  
+**Date:** 7 August 2025  
+**College:** Guru Nanak Dev Engineering College (GNDEC), Ludhiana  
+
+---
+
+## 🕘 Schedule Overview
+
+- **9:30 AM – 12:30 PM:** Auditorium Session  
+- **12:30 PM – 1:30 PM:** Lunch Break  
+- **1:30 PM – 2:30 PM:** Mathematics Lecture  
+- **2:30 PM – 3:30 PM:** English Lecture (in place of BEEE)
+
+---
+
+## 🧑‍🏫 Auditorium Session Highlights (9:30 AM – 12:30 PM)
+
+### 🎙️ Speaker 1: Dr. Praminder Singh
+- Gave a warm welcome to all students.
+- Emphasized the **importance of 4 years of college life**.
+- Key messages:
+  - Focus on your **career** and follow your **passion**.
+  - Explore new things and work on your **talent**.
+  - Manage your time wisely and gain not just a degree, but **knowledge with the degree**.
+  - Always take the opportunity to participate on stage and in various activities.
+  - Identify your **strengths and weaknesses**, work on them, and overcome phobias.
+  - Fulfill your dreams along with your **parents' dreams**.
+  - Participate in **sports and co-curricular activities** to maintain balance.
+
+#### 🏨 Hostel Facilities:
+- **Total Hostels:** 4
+  - **Girls' Hostels:** 3  
+  - **Boys' Hostel:** 1
+- Good mess, cooperative wardens, laundry machines, and student activities.
+
+#### 📚 Library & Labs:
+- Central Library:  
+  - **98,050 books**, AC Hall, seating for **300 students**
+- Computer Center:
+  - **100 computers**, **3 labs**
+- Sports Infrastructure:
+  - **17 playgrounds**, University-level champions
+- **3 Canteens**
+
+#### 🎭 Clubs & Committees:
+- **NSS (National Service Scheme)** – Tree planting, medical camps, etc.  
+- **NCC**, **MY Club**, **Cultural Committee**, **Recreation Club**,  
+  **Parvaaz Club**, **Cosmic Club**, **Fine Arts and Photography Club**
+
+#### 🏥 Medical & Scholarships:
+- Medical facilities available  
+- Various scholarship opportunities  
+- **Ragging-free campus**
+
+---
+
+### 🎙️ Speaker 2: Dr. Amit Kamra
+- Coordinator of **DMC (Digital Marketing Club)**  
+- PhD in Computer Science  
+- Founded DMC in **2024**  
+- Gave a brief overview of the club and its activities  
+- Shared opportunities such as **drone training**  
+- Encouraged students to **join and participate** in DMC activities
+
+---
+
+### 🎙️ Speaker 3: Randeep Singh Sir
+- **19 years** of experience in Physics  
+- Explained exam conduct:
+  - **75% attendance** is mandatory  
+  - A student is **detained** if attendance is less than 75%  
+  - Information about:
+    - Regular Exams  
+    - Reappear Exams  
+    - Makeup Exams  
+    - Exam Pattern and Marking Scheme
+
+---
+
+## 🍽️ Lunch Break (12:30 PM – 1:30 PM)
+
+---
+
+## 📐 Mathematics Lecture (1:30 PM – 2:30 PM)
+- **Professor:** Rajvir Kaur  
+- Explained **basic concepts** of:
+  - Differentiation  
+  - Differentiable equations  
+  - Introductory topics of the syllabus
+
+---
+
+## 📘 English Lecture (2:30 PM – 3:30 PM)
+- **Professor:** Manjot Kaur  
+- Took over the slot of **BEEE** lecture  
+- Conducted **Student Introduction Session**  
+  - Each student shared:
+    - Name  
+    - Hometown  
+    - Schooling background  
+    - Aim in life  
+    - Reason for choosing **B.Tech in GNDEC**
+
+---
+
+## 🏁 Conclusion (3:30 PM)
+- The day ended at **3:30 PM**
+- Went home afterwards
+- **Overall experience was fantastic**
+- Campus environment and faculty were **excellent**
+
+---
+
+## 🌟 Final Note:
+> *"A great learning day full of information, interaction, and motivation to start the engineering journey with confidence and clarity."*
