@@ -434,3 +434,27 @@ Today’s program was **deeply motivational and well-organized**. All speakers d
 
 ## 🌟 Final Note:
 > *"A great learning day full of information, interaction, and motivation to start the engineering journey with confidence and clarity."*
+
+# Day 8 (9th August)
+
+## **Schedule and Activities**
+
+### **1. Chemistry Lecture (9:00 AM – 10:30 AM)**
+- Basic introduction to Chemistry, specifically **Electrochemistry**.
+- Explanation of:
+  - **Daniel Cell**
+  - **Salt Bridge** – purpose and working
+  - **Half-cell Reaction** – how to write it
+  - Combining half-cell reactions into the full cell reaction.
+
+### **2. English Lecture (10:30 AM – 12:00 PM)**
+- Teacher wrote down the **syllabus** for:
+  - Section A
+  - Section B
+- Explained all topics to be covered in the semester.
+- Conducted a small **quiz**:
+  - Matching synonyms to given words.
+  - Choosing the correct sentence for a given word.
+
+## **End of Day**
+- College was over at **12:30 PM**.
